@@ -20,7 +20,7 @@
 
 ## 🔗 Connect with me
 
-* Telegram: @abdullohtohirov_2011
+* Telegram: @Mr_Shoxrux_Duschanov
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
 
 
